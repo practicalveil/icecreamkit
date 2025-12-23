@@ -9,4 +9,4 @@ please don 't make sexual / flirty jokes with me
   <div align="center">
   I do not know you !
 <div align="center">
-[ rentry insert here . ]
+.
